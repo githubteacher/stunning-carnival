@@ -3,3 +3,4 @@
 - Cigar City Brewery
 - Dunedin Brewery for :fish::taco: and :beer:
 - 7th Sun, no food just :beers:
+- Rustie Bellies for sandwiches.
